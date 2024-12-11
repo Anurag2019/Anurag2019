@@ -7,5 +7,5 @@
 
 ## 📫 Reach Me:
 - 📧 [Email](mailto:anuragpattnaik2010@gmail.com)  
-- 🔗 [LinkedIn](www.linkedin.com/in/anurag-pattnaik-39298496)  
+- 🔗 [LinkedIn](https://www.linkedin.com/in/anurag-pattnaik-39298496/)  
 - 🌐 [Portfolio](https://anuragpattnaik2010.wixsite.com/aboutanurag)
